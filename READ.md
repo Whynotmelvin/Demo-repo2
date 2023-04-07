@@ -6,4 +6,4 @@ Thank you
 
 # LOCAL DEVELOPMENT
 
-1. Read my boy
+1. Read my boy, cuz the top is where it's at.
